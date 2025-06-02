@@ -1,5 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ephemeralcreation&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST)
-![](https://komarev.com/ghpvc/?username=ephemeralcreation&base=∞)
+![](https://komarev.com/ghpvc/?username=ephemeralcreation&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
  ![image](https://github.com/user-attachments/assets/b897a5d7-53d0-44cc-a36a-09e434a602c8)
 ”Greetings,fellow soldier!🦅 Welcome to the humble abode of self-sacrifice.”
 
