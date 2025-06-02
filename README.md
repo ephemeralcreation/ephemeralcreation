@@ -8,3 +8,5 @@ _|⭐️| --> I'm literally Steve Rogers and John Walker in real life. Don't be 
 > «I've been a captain before, obviously, but this is different. This is... everybody in the world expects me to be something. And I don't wanna fail them.»
 
 ![image](https://github.com/user-attachments/assets/f358b279-aa63-4fc0-a468-b220bd5516b2)
+
+> «Look, here's the thing, uh, I'm not Tony Stark, I'm not Dr. Banner, okay? I don't have the flashiest gadgets, I don't have super strength. But what I do have is guts. Something Captain America always had, always needs to have, and I'm gonna need every ounce of it. Because I got big shoes to fill.»
