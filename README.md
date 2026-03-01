@@ -4,7 +4,7 @@ https://guns.lol/ephemeralbeing
 
 ![](https://komarev.com/ghpvc/?username=ephemeralcreation&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
 
- ![image](IMG_4149.gif)
+ ![image](https://github.com/ephemeralcreation/Vergil-/blob/8113d8f26f92bca752c8a1731f3d70a4425e5233/IMG_4149.gif)
  
 **”Greetings,fellow soldier!🦅Welcome to the humble abode of self-sacrifice.”**
 
