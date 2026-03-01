@@ -9,6 +9,8 @@ https://guns.lol/ephemeralbeing
 _|⭐️| --> I'm literally Steve Rogers and John Walker in real life. Don't be shy and see my Strawpage and Pronouns to get to know me better. It's a delight for me to acquire new acquitances!_
 
 > «I've been a captain before, obviously, but this is different. This is... everybody in the world expects me to be something. And I don't wanna fail them.»
+>
+         𒄆𓁹✞𒀱✞𓁹𒄆
 
 ![image](IMG_4148.gif)
 
