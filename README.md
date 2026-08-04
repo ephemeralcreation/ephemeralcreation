@@ -3,7 +3,7 @@
 (re-work in progress..STRAWPAGE IS AN ENORMOUS WIP..BUT TRUST THE PROCESS I BEG,MY YUMESHIP IS SHEER EPICNESS!!)
 
 *The Vergil and The Vergil Yume of pony town*
-https://github.com/pt-medals
+[pt-medals](https://github.com)
 
 !![image](IMG_4768.gif) 
 ![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
