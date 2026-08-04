@@ -2,7 +2,7 @@
 
 (re-work in progress..STRAWPAGE IS AN ENORMOUS WIP..BUT TRUST THE PROCESS I BEG,MY YUMESHIP IS SHEER EPICNESS!!)
 
-*The Vergil and The Vergil Yume of pony town*
+*The Vergil and The Vergil Yume of pony town!*
 [pt-medals](https://github.com)
 
 !![image](IMG_4768.gif) 
