@@ -3,7 +3,7 @@
 [pt-medals](https://github.com)
 
 !![image](IMG_4768.gif) 
-![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+I'VE+FELT+GUILTY+FOR+MY+PAST&base=9999)
+![](https://komarev.com/ghpvc/?username=VERGILSSBEING&label=TIMES+VERGIL+AND+RHAE+KISSED&base=9999)
 ![image](IMG_4759.gif) ![image](IMG_4760.gif) ![image](IMG_4761.gif)
 ![image](IMG_4284.gif)
  
