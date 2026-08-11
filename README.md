@@ -10,9 +10,9 @@
 ![image](IMG_4759.gif) ![image](IMG_4760.gif) ![image](IMG_4761.gif)
 ![image](IMG_4284.gif)
  
-**”Greetings,fellow crying devil! Welcome to the humble abode of self-sacrifice and isolation.”**
+![image](IMG_5425.gif)
 
-_|⭐️| --> I'm Ephemeral/Eph, a certified Vergil yumeshipper #1 and my pairing name goes by "Bladebond"!!  Don't be shy and see my Strawpage and Pronouns to get to know me (and soon) my sona better. It's a delight for me to acquire new acquitances!_
+_|⭐️| --> I'm Ephemeral/Eph, a certified Vergil yumeshipper #1 and my pairing name goes by "Bladebond"!!  Don't be shy and see my Strawpage and Pronouns to get to know me  my sona better. It's a delight for me to acquire new acquitances!_
 
 ![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/36b2debeff81a3812a309da73a9546e79c81b756/IMG_4758.png)
 ![image](https://github.com/VERGILSSBEING/VERGILSSBEING/blob/cb31069bbe4893c6df7aeca1dd7446fbce79b236/IMG_4755.png)
