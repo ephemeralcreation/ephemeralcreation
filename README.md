@@ -1,4 +1,8 @@
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hojl27ypxjhdgmohyw6braol6a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=00a1d8&bar_color_cover=true">
+  </a>
+</p>
 *The Vergil and The Vergil Yume of pony town!*
 [pt-medals](https://github.com) [ship-town](https://github.com) [FOLKTOWN](https://github.com)
 
